@@ -1,2 +1,4 @@
 # hello-world
-I'm completing the guides.github hello-world activity!
+I'm completingdelete IT ALL
+
+My name is Max Hob and my dream is to become a Hobby Man master.
